@@ -1,0 +1,2 @@
+# openclash
+NOT MORE
