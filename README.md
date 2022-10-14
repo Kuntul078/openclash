@@ -1,2 +1,2 @@
 # openclash
-NOT MORE
+Rules Basic
